@@ -32,6 +32,7 @@ and *"good"* is like wala nml min fael alkhayri, fafi waqtih sanahsud thimar juh
   <li>fortunate to have regrow of limbs</li>
    <li>fortunate to be fortunate</li>
 </ul>
-isn't the fortunate! i think it is... so mow that we know just **how** fortunate axolotls are we can see why **axolotl of fortune** pc software is such a good idea. c 
+isn't the fortunate! i think it is... so mow that we know just **how** fortunate axolotls are we can see why **axolotl of fortune** pc software is such a good idea. an can can can can can can can can can cna can can cna can see how good  of a good idea <img width="400" height="390" alt="1777745560927809" src="https://github.com/user-attachments/assets/e048c6bf-4f94-4593-ac82-b95e675f70b9" /> <=========== nota femboy "Madonna en mayo de" or if you welll E = hf + 3141 −34 J⋅Hz−1 is the random sysdem tha we USE also knowed as the **godsays 3.01!**
+
 
 
